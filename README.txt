@@ -1,0 +1,1 @@
+ikan kokop ikan bagus
